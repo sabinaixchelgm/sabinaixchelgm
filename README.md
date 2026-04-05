@@ -25,6 +25,7 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, a
 
 ✨ I value discipline, consistency, and growth  
 📚 I love books and learning  
+🌺 I collect perfumes 🥰
 🔐 Interested in cybersecurity  
 🎯 I enjoy teaching and sharing knowledge  
 
