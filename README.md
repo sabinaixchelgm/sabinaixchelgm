@@ -1,3 +1,6 @@
+
+![460101f10d8c645f36eac77ae4199ada](https://github.com/user-attachments/assets/45065a53-b3b4-4966-99a5-aa297d1b4d7f)
+
 # Hi, I'm Sabina 💟
 
 Data Engineer | AI Enthusiast | Trader  
@@ -45,5 +48,4 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, a
 
 If you're building, learning, or improving…  
 ✨ we’re probably aligned
-![460101f10d8c645f36eac77ae4199ada](https://github.com/user-attachments/assets/f418f535-ce88-49c5-ac4c-dbd8cbe160e2)
 
