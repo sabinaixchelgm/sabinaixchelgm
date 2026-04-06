@@ -5,7 +5,7 @@
 
 Data Engineer | AI Enthusiast | Trader  
 
-I’m passionate about **Artificial Intelligence**, **Data driven solutions**, and understanding patterns that lead to better decisions.
+I’m passionate about **Artificial Intelligence**, **Data driven solutions**, and understanding financial market patterns that lead to better decisions.
 
 ---
 
