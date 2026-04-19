@@ -12,9 +12,9 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 ## 💡 What drives me
 
 🔥 I enjoy working on:
-- AI & data-driven systems  
 - Pattern research in financial markets  
-- High-probability scenarios  
+- AI & data-driven systems  
+- High-probability trading scenarios  
 - Cybersecurity  
 
 📊 I Trade **Bitcoin & Gold**
