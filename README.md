@@ -42,10 +42,4 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 - Build meaningful systems  
 - Improve continuously  
 
----
-
-## 📫 Let’s connect
-
-If you're building, learning, or improving…  
-✨ we’re probably aligned
 
