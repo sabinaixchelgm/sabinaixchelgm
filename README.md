@@ -17,12 +17,13 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 - High-probability trading scenarios  
 - Cybersecurity  
 
-📊 I Trade **Bitcoin & Gold**
+
 
 ---
 
 ## 🧠 About me
 
+📊 I Trade **Bitcoin & Gold**
 ✨ I value discipline, consistency, and growth  
 📚 I love books and learning  
 🌺 I collect perfumes 🥰  
