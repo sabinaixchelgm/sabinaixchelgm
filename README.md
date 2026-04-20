@@ -14,7 +14,9 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 🔥 I enjoy working on:
 - Pattern research in financial markets  
 - AI & data-driven systems  
-- High-probability trading scenarios  
+- High-probability trading scenarios
+- Game Theory
+- Inferential Statistics
 - Cybersecurity  
 
 
