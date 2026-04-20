@@ -23,7 +23,7 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 
 ## 🧠 About me
 
-📊 I Trade **Bitcoin & Gold**
+📊 I Trade **Bitcoin & Gold**  
 ✨ I value discipline, consistency, and growth  
 📚 I love books and learning  
 🌺 I collect perfumes 🥰  
