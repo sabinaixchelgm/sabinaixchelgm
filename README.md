@@ -3,7 +3,7 @@
 
 # Hi, I'm Sabina 💟
 
-Data Engineer | AI Enthusiast | Trader  
+Mathematician | Data Engineer | AI Enthusiast | Trader  
 
 I’m passionate about **Artificial Intelligence**, **Data driven solutions**, **Trading** / understanding financial market patterns that lead to better decisions.
 
@@ -30,6 +30,7 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 📚 I love books and learning  
 🌺 I collect perfumes 🥰  
 🎯 I enjoy teaching and sharing knowledge  
+😊 I enjoy deep and meaningful conversations 
 ❤️ I love hardworking and high value people  
 
 ---
