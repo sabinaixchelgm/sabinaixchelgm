@@ -28,9 +28,9 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 📊 I Trade **Bitcoin & Gold**  
 ✨ I value discipline, consistency, and growth  
 📚 I love books and learning  
-🌺 I collect perfumes 🥰  
+🥰 I collect perfumes   
 🎯 I enjoy teaching and sharing knowledge  
-😊 I enjoy deep and meaningful conversations 
+😊 I enjoy deep and meaningful conversations  
 ❤️ I love hardworking and high value people  
 
 ---
