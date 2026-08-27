@@ -28,6 +28,7 @@ I’m passionate about **Artificial Intelligence**, **Data driven solutions**, *
 📊 I Trade **Bitcoin & Gold**  
 ✨ I value discipline, consistency, and growth  
 📚 I love books and learning  
+🙆‍♀️ INTJ Girl
 🥰 I collect perfumes   
 🎯 I enjoy teaching and sharing knowledge  
 😊 I enjoy deep and meaningful conversations  
